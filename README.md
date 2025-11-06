@@ -1,1 +1,1 @@
-Starting A new Things 
+CLIPPING MASK
